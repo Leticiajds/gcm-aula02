@@ -2,6 +2,8 @@
 
 Rihanna
 
-Robert downey jr
+Robert downey
 
 Bruna marquezine
+
+Vin Diesel
